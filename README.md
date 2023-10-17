@@ -26,7 +26,7 @@ If your interesting show up tomorrow at bever river. <br>
    - C.e.o of Sun dip n Moon <br>
 </b>
 
--- Level 2 -- <br>
+## -- Level 2 -- <br>
 
 That night. Otto couldnt sleep, while the Letter intrigued him, he doubted if he realy could make a difference. <br>
 The idea of traveling to clean up other areas filled him with a sense of purpose, but it was also a bit intimidating. <br>
@@ -54,13 +54,13 @@ enjoying the simple and nutritious meal as he reflected on the day's events. <br
 The worlds "Everyone loves you" realy stuck in his head as he ate the Seaweed. <br>
 Feeling a sense of happyness he quickly turned off the lights and headed to bed. <br>
 
--- Level 3 -- <br>
+## -- Level 3 -- <br>
    - Pre <br>
 
    - Post <br>
 
 
--- Level 4 -- <br>
+## -- Level 4 -- <br>
    - Pre <br>
 
    - Post <br>
