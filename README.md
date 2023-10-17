@@ -50,18 +50,19 @@ Next spot would be the east sea coast. <br>
 good luck! <br>
    - C.e.o of Sun dip n Moon <br>
 </b>
-Happy with today's accomplishments, Otto returned home and cooked himself some seaweed, enjoying the simple and nutritious meal as he reflected on the day's events.
-The worlds "Everyone loves you" realy stuck in his head as he ate the Seaweed.
-Feeling a sense of happyness he quickly turned off the lights and headed to bed.
+Happy with today's accomplishments, Otto returned home and cooked himself some seaweed, <br>
+enjoying the simple and nutritious meal as he reflected on the day's events. <br>
+The worlds "Everyone loves you" realy stuck in his head as he ate the Seaweed. <br>
+Feeling a sense of happyness he quickly turned off the lights and headed to bed. <br>
 
 -- Level 3 -- <br>
-   - Pre
+   - Pre <br>
 
-   - Post
+   - Post <br>
 
 
 -- Level 4 -- <br>
-   - Pre
+   - Pre <br>
 
-   - Post
+   - Post <br>
 
