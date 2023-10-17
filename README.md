@@ -55,9 +55,25 @@ The worlds "Everyone loves you" realy stuck in his head as he ate the Seaweed. <
 Feeling a sense of happyness he quickly turned off the lights and headed to bed. <br>
 
 ## -- Level 3 -- <br>
-   - Pre <br>
+"Another fresh start" Otto mentions as he gets dressed up to go to the east sea coast today. <br>
+He took off to travel through the main city. <br>
+The island was split up in 2 parts, the main city and the local city with the main city using less <br>
+eco friendly methods to keep running. <br>
+The Local city on the other hand, where Otto lives, was a lot bigger and had more eco friendly methods of modernisation. <br>
+He looked around, looking at all that concrete with a frown. <br>
+Reaching the east coast Otto was shocked by so much litter, even on the sand. <br>
+He quickly gather'd the sand waste with a net provided by Bill before he started to fish for the rest. <br>
+[- Level 3 here] <br>
+it already has gotten late, Otto turned on a small flashlight and read the message in the bottle. <br>
+<b>
+Good Evening Otto, <br>
+Tomorrow we plan to send you to the Ocean with a crew, lets see if we cant clean it up aswell? <br>
+Reminder : Everyone will be watching just as they did today. <br>
+We've already reached a million Viewers yesterday, your realy inspireing. <br>
+Dont let me keep you up so late. see ya tomorrow! <br>
+   - C.e.o of Sun dip n Moon <br>
+</b>
 
-   - Post <br>
 
 
 ## -- Level 4 -- <br>
