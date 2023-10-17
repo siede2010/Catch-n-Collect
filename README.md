@@ -27,7 +27,6 @@ If your interesting show up tomorrow at bever river. <br>
 </b>
 
 -- Level 2 -- <br>
-   - Pre
 
 That night. Otto couldnt sleep, while the Letter intrigued him, he doubted if he realy could make a difference. <br>
 The idea of traveling to clean up other areas filled him with a sense of purpose, but it was also a bit intimidating. <br>
