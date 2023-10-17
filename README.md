@@ -80,4 +80,6 @@ Dont let me keep you up so late. see ya tomorrow! <br>
    - Pre <br>
 
    - Post <br>
-
+      - 1. Dispair      [otto cant see the end]
+      - 2. Backup       [ppl come to help]
+      - 3. Happy ending [they all live happily ever after]
