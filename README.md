@@ -77,9 +77,32 @@ Dont let me keep you up so late. see ya tomorrow! <br>
 
 
 ## -- Level 4 -- <br>
-   - Pre <br>
-
-   - Post <br>
-      - 1. Dispair      [otto cant see the end]
-      - 2. Backup       [ppl come to help]
-      - 3. Happy ending [they all live happily ever after]
+That night. Otto couldnt sleep, he was contemplating if he could clean the ocean. <br>
+It was a big task. Too big for him to handle and if he failed... <br>
+He couldnt bear to imagine the millions of people who would be disapointed. <br>
+Looking back at his achivements over the past few day's made Otto smile and gave him some well needed Courage. <br>
+YES! He could do it! He will do it! There is nothing that will ever stop Otto! <br>
+... <br>
+In the morning he rushed down and after gulping down his breakfeast in one go departed for the Boat waiting for him. <br>
+He was going to make everyone proud. <br>
+[- Level 4 here] <br>
+Its just too much! <br>
+No matter how Otto looked at it, the amount of trash in the Ocean was never ending. <br>
+He felt hopeless as he looked towards the horizon where he could see even more trash. <br>
+and to add to that the weather was getting rough, they couldnt stay out there. <br>
+Otto felt utterly defeated, he couldnt do it... <br>
+he listened to the online radio while he sat down, the camera's of the hot air balloon have already shut off... <br>
+Radio : "And for the newest piece of info an Otter called Otto ha..." <br>
+Otto didnt listen to the radio any longer and simply sat there, tears dripping down his face as it began to rain. <br>
+... <br>
+All of a sudden a plastic bottle with a message fell onto his head, above, Bill was waving to him with a smile. <br>
+Otto was confused, why was he smiling? he looked at the bottle and open'd the message inside it. <br>
+<b>
+Have you been listening to the radio Otto? <br>
+A ton of people have gather'd and started to fish out the trash out of the Ocean just as you did today. <br>
+You did a great job. <br>
+You truly are an Idol for all to look up too. <br>
+With kind regards, <br>
+   Your Friend, Bill aka. Ceo of Sun dip n Moon <br>
+</b>
+(it should end with a last pannel of Otto smiling and the sun shining through a hole in the clouds) <br>
