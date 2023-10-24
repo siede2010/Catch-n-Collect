@@ -103,6 +103,6 @@ A ton of people have gather'd and started to fish out the trash out of the Ocean
 You did a great job. <br>
 You truly are an Idol for all to look up too. <br>
 With kind regards, <br>
-   Your Friend, Bill aka. Ceo of Sun dip n Moon <br>
+- Your Friend, Bill aka. Ceo of Sun dip n Moon <br>
 </b>
 (it should end with a last pannel of Otto smiling and the sun shining through a hole in the clouds) <br>
